@@ -37,11 +37,15 @@ To establish an effective waste management system that enhances environmental su
 - Develop detailed project plans outlining specific roles, responsibilities, and timelines for implementation.
 This summary encapsulates the core elements of the business plan aimed at establishing an effective waste management system in rural Iran, highlighting its collaborative approach and focus on community involvement. If you need further details or specific sections expanded upon, please let me know!
 Citations:
+
 [2] https://ppl-ai-file-upload.s3.amazonaws.com/web/direct-files/25429391/0675dfdf-bce2-4872-9935-a7dd79c7c5c3/1_4286916508-1.pdf
+
 And the PowerPoint for it 👇:
+
 https://www.slidespilot.com/s/p/6A0WPLek9G
 ![enter image description here](https://i.sstatic.net/BOqsTgrz.jpg)
 And the related business plan and proposal file:
+
 ![enter image description here](https://i.sstatic.net/3KEqyY9l.jpg)
 https://1drv.ms/w/s!Ahbmuw9pTocwrnDlNVECi72HIjR1?e=WCwqlr
 ![enter image description here](https://i.sstatic.net/JpzBLWg2.jpg)
