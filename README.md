@@ -4,6 +4,7 @@
 ![enter image description here](https://i.sstatic.net/DahTpAB4.jpg)
 
 ![enter image description here](https://i.sstatic.net/oTSUhERA.jpg)
+
 https://www.perplexity.ai/search/sfhh-nkhst-ryst-jmhwry-ryys-jm-3AzlcNocQtmUq6ezrX7_.A
 The business plan outlined in the provided PDF focuses on a comprehensive waste management initiative aimed at improving waste collection and disposal in rural areas of Iran. Below is a summarized version of the key components of the plan:
 ## Summary of the Business Plan for Waste Management
